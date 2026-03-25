@@ -1,4 +1,4 @@
-- Swansea University CompSci student
+- Swansea University CompSci graduate
 
 
 
